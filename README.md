@@ -1,1 +1,0 @@
-# elmoktadirimad.github.io
